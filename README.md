@@ -27,3 +27,6 @@ En este apartado, tendréis información y contactos míos tales como:
 ## Proyectos destacados
 ·**Blog personal**:
 Un canal de YouTube en el que comparto gameplays de cosas que me gustan y entretienen.
+
+## Habilidades
+***Soft skills***: Amable, trabajo en equipo, independiente.
