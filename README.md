@@ -20,3 +20,10 @@ En este apartado, tendréis información y contactos míos tales como:
 - **Correo**: *diegoperezconde@elpuig.xeill.net* 
 - **Ubicación**: *Santa Coloma de Gramenet, Catalunya.*
 - **Nombre**: *Diego David Pérez Conde.*
+
+## Estudios
+· Graduado de la ESO en *IES Torrent de Les Bruixes*
+
+## Proyectos destacados
+·**Blog personal**:
+Un canal de YouTube en el que comparto gameplays de cosas que me gustan y entretienen.
