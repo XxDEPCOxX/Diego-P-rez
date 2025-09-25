@@ -37,4 +37,6 @@ Un canal de YouTube en el que comparto gameplays de cosas que me gustan y entret
 ***TikTok***:[TikTok](https://www.tiktok.com/@el_prompt729)
 
 ## Fotografía
-![Personaje Favorito](https://pbs.twimg.com/media/F8pMIOXa8AAdtau?format=jpg&name=large)
+**Estos son mi personajes favoritos**
+![Octane](https://pbs.twimg.com/media/F8pMIOXa8AAdtau?format=jpg&name=large)
+![Isagi](https://i.pinimg.com/736x/06/4c/34/064c3464cb28289feba92cc89b7bbb97.jpg)
