@@ -37,4 +37,4 @@ Un canal de YouTube en el que comparto gameplays de cosas que me gustan y entret
 ***TikTok***:[TikTok](https://www.tiktok.com/@el_prompt729)
 
 ## Fotografía
-![MainOctane](source=images&opi=89978449)
+![personajefav](source=images&opi=89978449)
