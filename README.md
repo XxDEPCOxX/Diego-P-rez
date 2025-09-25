@@ -30,3 +30,11 @@ Un canal de YouTube en el que comparto gameplays de cosas que me gustan y entret
 
 ## Habilidades
 ***Soft skills***: Amable, trabajo en equipo, independiente.
+***Técnicas**: 2 veces Iridiscente en Dead By Daylight.
+
+## Redes Sociales
+***Instagram***: [Instagram](https://www.instagram.com/el_prompt729/)
+***TikTok***:[TikTok](https://www.tiktok.com/@el_prompt729)
+
+## Fotografía
+![MainOctane](baixades/img/Octane.jpeg)
